@@ -1,2 +1,2 @@
 # Arquivos-de-Estudos
-Aulas DNC - 
+Aulas e Estudos Gerais - 
